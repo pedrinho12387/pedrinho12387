@@ -15,4 +15,4 @@ eu sou o aluno Pedrinho
 
 
 
- ![](https://tenor.com/pt-BR/view/escorregando-yuri-alberto-caindo-de-joelhos-comemorando-caindo-pra-torcida-gif-9040935196131892578)
+ ![](https://tenor.com/pt-BR/view/soquinho-no-ar-yuri-alberto-pulo-pro-ar-comemorando-caindo-pra-torcida-gif-11447103051647351563)
