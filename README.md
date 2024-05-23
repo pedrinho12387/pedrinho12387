@@ -9,10 +9,10 @@ eu sou o aluno Pedrinho
 
 
 
- ## você pode entrar em contanto comido 📫
+ ## você pode entrar em contanto comigo 📫
 
  00001100729926sp@al.educacao.sp.gov.br
 
 
 
- ![](https://tenor.com/pt-BR/view/passinho-caetano-dancinha-ombrinho-pro-lado-empolgado-gif-843410975568532572)
+ ![](https://media1.tenor.com/m/C7Rl0E5tlFwAAAAd/passinho-caetano.gif)
