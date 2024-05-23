@@ -15,4 +15,4 @@ eu sou o aluno Pedrinho
 
 
 
- ![yuri](https://tenor.com/pt-BR/view/correndo-yuri-alberto-apressado-acelerado-olhando-pro-lado-gif-2175547732645265525)
+ ![yuri]( https://tenor.com/pt-BR/view/yuri-alberto-gostoso-corinthians-vai-corinthians-gif-11401363730026943260 )
